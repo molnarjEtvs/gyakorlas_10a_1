@@ -1,0 +1,1 @@
+# gyakorlas_10a_1
